@@ -1,4 +1,4 @@
-
+Experience bedwars like never before with best bedwars Script, the #1 Script. Includes god mode and no cooldown for unbeatable performance.
 
 
 
